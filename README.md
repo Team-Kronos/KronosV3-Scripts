@@ -24,6 +24,8 @@ So what are you waiting for?? Download Kronos today and enchance your exploiting
 
 [Backup Download](https://www.teamkronos.tk/)
 
+[Team Kronos Website](https://www.teamkronos.tk/)
+
 [Discord Server](https://discord.gg/AkYfnMJ)
 
 [Inferious Cheats](https://inferiouscheats.cf/)
